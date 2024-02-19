@@ -3,4 +3,4 @@
 - Did not commit tax fraud on the 13th of March 2006
 - To contact me write a letter to:
   68419 ShredderVille Avenue, Fox Road,
-  Losertown, UK
+  Losertown, Great Britain
